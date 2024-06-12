@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @sSorixX
+- 👋 Hi, I’m @sShorixX
 - 🎈 [discord](https://discord.gg/v9FE6BqXDB)
